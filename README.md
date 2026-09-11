@@ -1,6 +1,4 @@
-# README.md
-
-Welcome to the README.md wiki!
+# About me
 
 # Hello! I'm Himanshi Sagar👋
 
