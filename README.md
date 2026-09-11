@@ -1,6 +1,6 @@
-# About me
+# Me as a Techie 🖥
 
-# Hello! I'm Himanshi Sagar👋
+# 👋🏻 Hello! I'm Himanshi Sagar
 
 ### 🚀 About Me
 - 🔭 I’m currently working on my skills.
